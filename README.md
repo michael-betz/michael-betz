@@ -1,2 +1,2 @@
-
+- 😶‍🌫️ 5E75 4358 0466 EB55 40E8 B66F E760 84D5 94F2 F9C7
 - 📫 <a rel="me" href="https://mas.to/@yetifrisstlama">Mastodon</a>
